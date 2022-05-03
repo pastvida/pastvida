@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Vidas
+- 👀 I’m interested in FINDING new candidates for projects and clients.
+- 🌱 I’m currently learning QA
+- 💞️ I’m looking to collaborate on being a best in my job.
+- 📫 How to reach me vp@hitcontract.lt
